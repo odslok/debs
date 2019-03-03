@@ -1,5 +1,3 @@
 # debs
-coisas que preciso
-preciso muito
-hehehe
-<b>loco</b>
+personal use <b>only</b>
+iOS Jailbreak
